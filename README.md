@@ -6,6 +6,7 @@ ________________________________________________________________________________
 ### Sobre mi
 Estoy haciendo materias de segundo año. Me gustan las peliculas y series. 
 Tambien me gustan los autos y manejar. Tengo un fiat 600 de proyecto con dos amigos, aunque por el momento esta medio abandonado.
+![WhatsApp Image 2025-03-28 at 10 27 03](https://github.com/user-attachments/assets/2f969a99-75e2-4418-9314-c0dc7bfb699a)
 
 _______________________________________________________________________________________________________________
 ### Mi foto 
